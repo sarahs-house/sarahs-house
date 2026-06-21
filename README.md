@@ -7,7 +7,6 @@
 - measurement, hierarchical modeling, causal inf, mixed-methods, surveys, and a little ML
 
 - new yorker (LGK)
-- cradle catholic
 - lover of cats, cooking, and classic rock
 - BDS!!!!!!
 
